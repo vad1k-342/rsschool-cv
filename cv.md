@@ -8,7 +8,7 @@
 
 ### Telegram: @vad1k_kozlovskij
 
-### GitHub: @vad1k-342
+### Discord: vad1k342
 
 ### Краткая информация о себе
 
